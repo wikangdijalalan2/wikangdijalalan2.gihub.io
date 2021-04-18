@@ -1,1 +1,1 @@
-# wikangdijalalan2.gihub.io
+# wikangdijalalan2.github.io
